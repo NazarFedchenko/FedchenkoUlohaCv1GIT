@@ -1,1 +1,0 @@
-# FedchenkoUlohaCv1GIT
